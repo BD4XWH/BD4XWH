@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @BD4XWH
-- I am a HAM ，my Call sign is BD4XWH
+- I am a HAM ,Call sign is BD4XWH
 - mail:cq[a]bd4xwh.com
