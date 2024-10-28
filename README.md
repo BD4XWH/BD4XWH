@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @BD4XWH
-- mail: cq(@)bd4xwh.com
+- mail:cq[a]bd4xwh.com
